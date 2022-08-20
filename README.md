@@ -1,4 +1,4 @@
-🌐 ¡Hola mundo!
+🌐 ¡Hola gente!
 
 👋 Me llamo Fernando.
 🗺️ y actualmente estoy en Ituzaingó, Buenos Aires.
